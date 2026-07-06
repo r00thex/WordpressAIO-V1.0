@@ -13,3 +13,7 @@
 ➡️Fast and Can Choose Threads
 
 ⚠️ File Re uploaded And Bug Fixed
+
+3 results file add add combo, uploader ,checker
+
+any problem connect my telegram account:- @roothexh ✅
